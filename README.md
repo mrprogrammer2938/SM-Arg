@@ -18,4 +18,4 @@ smarg
 
 [Instagram](https://instagram.com/programmer2938)
 
-[Pinterest](https://www.pinterest.com/mrpro
+[Pinterest](https://www.pinterest.com/mrprogrammer2938)
